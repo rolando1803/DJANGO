@@ -1,0 +1,8 @@
+![image](https://github.com/rolando1803/DJANGO/assets/55965131/4e38d7ce-3692-4269-a08a-751f51c87b5c)
+![image](https://github.com/rolando1803/DJANGO/assets/55965131/14e2ea03-d934-4fce-94d4-99305ecaa982)
+![image](https://github.com/rolando1803/DJANGO/assets/55965131/0bb463dc-22a2-4b29-9d61-6d849c76b8e1)
+![image](https://github.com/rolando1803/DJANGO/assets/55965131/76297202-5e7f-4ee2-9ee9-e6af048e9cc3)
+![image](https://github.com/rolando1803/DJANGO/assets/55965131/26715c49-94fb-4b7f-a548-bc419413ebac)
+![image](https://github.com/rolando1803/DJANGO/assets/55965131/cdfb424a-e17d-4ce6-bfb2-df1b51013c6c)
+![image](https://github.com/rolando1803/DJANGO/assets/55965131/b9f7b0a8-e1ce-4fc0-b347-f102bda433d1)
+![image](https://github.com/rolando1803/DJANGO/assets/55965131/750fd7f2-47a9-4c16-a2a7-aa34f83ef13d)
